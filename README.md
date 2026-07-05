@@ -1,4 +1,4 @@
-# Blend-Off 🏆
+# Blend-Wars
 
 Your Blend with your best friend and your Blend with your situationship are
 about to be put on trial. Paste in two or more of your Spotify Blends and
